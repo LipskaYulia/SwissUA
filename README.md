@@ -111,6 +111,7 @@ SEEP🇨🇭: допомога українцям 🇺🇦
 
 [Beauty мастера в Швейцарии]https://t.me/BeautySwitzerland
 
+[Чат кантона Шаффхаузен](https://t.me/+aDgGOoiukhNhNzAy)
 ### Facebook:
 
 [Українці в Швейцарії](https://www.facebook.com/groups/519429765180420)
